@@ -1,2 +1,2 @@
 # decky
-hanya untuk dea dan agus
+hanya untuk deta dan agus
